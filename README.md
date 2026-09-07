@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @MasonG26
-- 👀 I’m interested in the sopranos, falout new vegas, pool, cooking
-- 🌱 I’m currently learning cybersecurity
-- 💞️ I’m looking to collaborate on school projects
-- 📫 How to reach me ... don't
